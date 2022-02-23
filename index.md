@@ -4,7 +4,7 @@
 
 ### Gmail
 
-##### theinternetisatube@gmail.com
+##### [EMAIL ME](ashtonjchan6@gmail.com)
 
 
 [twitter](www.twitter.com/neverlivedordied)
